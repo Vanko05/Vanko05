@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Vanko05
-- 👀 I’m interested in ... FiveM World,Electric,Gaming and others...
+- 👀 I’m interested in ... FiveM World,Electricity,Gaming and others...
 - 🌱 I’m currently learning ... for Electrician
 - 💞️ I’m looking to collaborate on ... YT,FiveM
 - 📫 How to reach me ... Nothing
